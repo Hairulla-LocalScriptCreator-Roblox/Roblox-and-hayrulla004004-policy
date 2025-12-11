@@ -15,3 +15,6 @@ im so love roblox, roblox its my life! im play 2020 year to roblox!
 
 by hayrulla004004 account 🤍 
 thanks roblox 🤍
+
+WARNING! All players and games has on wiki
+https://github.com/Hairulla-LocalScriptCreator-Roblox/Roblox-and-hayrulla004004-policy/wiki
