@@ -11,6 +11,7 @@ Im need get or Admin panel to ban games and players, im not need 10000000 dollar
 Eovlox if you give me Roblox Studio check games im fully start checking 50 accounts in one day and every 7 days giving all info from games Roblox Studio
 
 # Ending
-im so love roblox, roblix its my life! im play 2020 year to roblox!
+im so love roblox, roblox its my life! im play 2020 year to roblox!
 
-by hayrulla004004 account🤍
+by hayrulla004004 account 🤍 
+thanks roblox 🤍
